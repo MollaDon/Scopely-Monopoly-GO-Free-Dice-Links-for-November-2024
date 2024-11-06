@@ -1,0 +1,1 @@
+# Scopely-Monopoly-GO-Free-Dice-Links-for-November-2024
